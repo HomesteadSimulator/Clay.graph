@@ -1,0 +1,3 @@
+- https://en.wikipedia.org/wiki/Clay
+- https://en.wikipedia.org/wiki/Clay_mineral
+- https://en.wikipedia.org/wiki/Kaolinite
