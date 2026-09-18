@@ -11,3 +11,7 @@ https://digitalfire.com/oxide/loi
 https://digitalfire.com/glossary/formula+weight
 
 https://digitalfire.com/glossary/decomposition
+
+https://digitalfire.com/glossary/cone+6
+
+https://digitalfire.com/glossary/cone+5
