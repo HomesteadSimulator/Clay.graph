@@ -9,3 +9,5 @@ https://digitalfire.com/glossary/ceramic+oxide
 https://digitalfire.com/oxide/loi
 
 https://digitalfire.com/glossary/formula+weight
+
+https://digitalfire.com/glossary/decomposition
