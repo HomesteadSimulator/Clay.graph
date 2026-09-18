@@ -15,3 +15,8 @@ https://digitalfire.com/glossary/decomposition
 https://digitalfire.com/glossary/cone+6
 
 https://digitalfire.com/glossary/cone+5
+
+https://digitalfire.com/glossary/terra+cotta
+
+# Mineral
+https://digitalfire.com/material/310
