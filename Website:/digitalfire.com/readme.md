@@ -5,3 +5,5 @@ https://digitalfire.com/material/kaolin
 
 # Glossary:
 https://digitalfire.com/oxide/loi
+
+https://digitalfire.com/glossary/formula+weight
