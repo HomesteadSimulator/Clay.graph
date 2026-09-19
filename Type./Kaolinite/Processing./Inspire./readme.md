@@ -1,1 +1,2 @@
 - [How China Clay Processing Plant Works | Kaolin Clay Mining | Clay Processing Industry](https://youtu.be/hsEfaClnRcs)
+- [The Super Giant Kaolin Mining – Refines White Gold from the Earth in a Mind Blowing Process](https://youtu.be/j2HTq0vhlQc)
