@@ -1,1 +1,2 @@
-https://kaolinproguide.wordpress.com/2024/03/15/using-kaolin-clay-in-pottery-and-ceramics/
+- https://shreeramkaolin.com/exploring-the-properties-and-applications-of-kaolin/
+- https://kaolinproguide.wordpress.com/2024/03/15/using-kaolin-clay-in-pottery-and-ceramics/
