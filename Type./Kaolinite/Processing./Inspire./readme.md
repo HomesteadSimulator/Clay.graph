@@ -1,1 +1,1 @@
-- [How China Clay Processing Plant Works | Kaolin Clay Mining | Clay Processing Industry](
+- [How China Clay Processing Plant Works | Kaolin Clay Mining | Clay Processing Industry](https://youtu.be/hsEfaClnRcs)
